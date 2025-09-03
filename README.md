@@ -1,0 +1,1 @@
+# colorswipe-privacy-policy
